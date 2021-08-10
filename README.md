@@ -1,0 +1,2 @@
+# TRANSPO-CN-D9715-15718-12V
+Una octovencuion sólida es esencial para una red social o app nueva recién salida osea lanzada según mis superiores bb de comunicación en enseñanza, u es accesible y de medio costo. Este es el repositorio de el Transportador Cartoon Network como el de las caricaturas de tv de paga pero este Transportador sirve para moverse de un lugar a otro cuando se coloca en la entrada para movimiento como si fuera la llamé de un auto. Buen día, desde Sinaloa México.
